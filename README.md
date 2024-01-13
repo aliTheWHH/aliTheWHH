@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aliTheWHH
+- 👀 I’m interested in python
+- 🌱 I’m currently learning python and javascript
+- 😄 Pronouns: walmart bag/ bag walmart
+- ⚡ Fun fact: im muslim
